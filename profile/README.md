@@ -1,6 +1,5 @@
 The Skeptics’ Guide to the Universe Free PDF Download – Everything You Need to Know
-
-![The Skeptics’ Guide to the Universe Free PDF](https://playghar.com/wp-content/uploads/2025/02/The-Skeptics-Guide-to-the-Universe-Free-PDF-Download.webp)
+[![The Skeptics’ Guide to the Universe Free PDF](https://playghar.com/wp-content/uploads/2025/02/The-Skeptics-Guide-to-the-Universe-Free-PDF-Download.webp)](https://playghar.com/the-skeptics-guide-to-the-universe-free-pdf-download/)
 
 [![Download Now](https://img.shields.io/badge/Download-Now-red?style=for-the-badge)](https://playghar.com/the-skeptics-guide-to-the-universe-free-pdf-download/)
 
